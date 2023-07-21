@@ -2,7 +2,7 @@
  
 - 👀 I’m interested in music, photography and obviously coding :) .
 
-- 🌱 I’m looking to collaborate on front-end projects for the moment.
+- 🌱 I'm open to new experiences/challenges, both front and back end.
 
 - 📫 How to reach me ===> broyettore@gmail.com
 
